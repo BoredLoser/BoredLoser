@@ -1,4 +1,1 @@
-- 👋 Hi, I’m @Eve
-- 👀 I’m interested in tv shows, games, and music
-- 🌱 I’m currently learning school....
-- 📫 How to reach me : Ponytown (Until I rmk my disc acc)
+
